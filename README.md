@@ -78,3 +78,23 @@ During the project, managing multiple campaigns and ensuring donor data security
 data management strategies. Overcoming these challenges provided valuable skills in the software development process.
 
 ## My Photographs
+
+![Ekran görüntüsü 2025-01-02 182809](https://github.com/user-attachments/assets/869ad0cb-8abc-4514-ac2f-370873274854)
+![Ekran görüntüsü 2025-01-02 182844](https://github.com/user-attachments/assets/b22762ce-75b8-4953-aa47-606b5ca46175)
+![Ekran görüntüsü 2025-01-02 182911](https://github.com/user-attachments/assets/f4920a11-352a-4635-8c77-be45d4a0c7f7)
+![Ekran görüntüsü 2025-01-02 182939](https://github.com/user-attachments/assets/d5d2de39-49db-40a7-a460-1a264361d0f9)
+![Ekran görüntüsü 2025-01-02 183000](https://github.com/user-attachments/assets/b4e7a184-2262-4017-ad40-ccbb5f35fcf4)
+![Ekran görüntüsü 2025-01-02 183049](https://github.com/user-attachments/assets/69e06ee0-0e1f-4556-9b40-732c5091e6bb)
+![Ekran görüntüsü 2025-01-02 183111](https://github.com/user-attachments/assets/5ec18a9c-c920-4489-85eb-93923ce6775d)
+![Ekran görüntüsü 2025-01-02 183134](https://github.com/user-attachments/assets/e809037f-4360-46a4-9308-61eac6fe3a31)
+![Ekran görüntüsü 2025-01-02 183154](https://github.com/user-attachments/assets/68ca1b86-f027-4b6d-890e-e32994643854)
+![Ekran görüntüsü 2025-01-02 183226](https://github.com/user-attachments/assets/8188a5b1-36d4-4a6c-8ef2-b3ab3e13ac8b)
+![Ekran görüntüsü 2025-01-02 183247](https://github.com/user-attachments/assets/fdf10e4c-7f2c-42f5-8a3a-db47050bf165)
+![Ekran görüntüsü 2025-01-02 183308](https://github.com/user-attachments/assets/b8b92435-e11d-4ee7-b913-2140f27a97b9)
+![Ekran görüntüsü 2025-01-02 183327](https://github.com/user-attachments/assets/a4447536-4113-477c-b3cf-37997fb852ae)
+
+
+
+
+
+
